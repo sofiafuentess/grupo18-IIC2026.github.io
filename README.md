@@ -1,1 +1,0 @@
-# grupo18-IIC2026.github.io
